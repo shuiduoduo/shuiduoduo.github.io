@@ -11,3 +11,6 @@
 小黄鸭导航福利最新地址发布页https://xhydh123.github.io/</br>
 水多多导航最新网址发布页https://shuiduoduo.github.io/</br>
 <a href="https://shuiduoduo.github.io/shuiduoduo1.html">水多多导航页</a>
+<a href="https://shuiduoduo.github.io/shuiduoduo2.html">水多多网站</a>
+<a href="https://shuiduoduo.github.io/shuiduoduo3.html">水多多导航页</a>
+<a href="https://shuiduoduo.github.io/shuiduoduo4.html">水多多导航页</a>
